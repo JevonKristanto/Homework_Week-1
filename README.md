@@ -41,3 +41,7 @@
 
 ### [YouTube](https://www.youtube.com/watch?v=GDlkCkcIqTs) 
 
+![Apple-iPhone-16-Pro-finish-lineup-240909_big jpg large](https://github.com/user-attachments/assets/a09710e0-0882-4965-bf15-5c2f46469941)
+![maxresdefault](https://github.com/user-attachments/assets/43e77f2a-0e23-46e8-ab8e-40d3573fce58)
+
+

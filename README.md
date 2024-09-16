@@ -4,7 +4,7 @@
 #### Homework_Week-1
 ##### Homework_Week-1
 
-## Please select region
+## Please select region for your order
 
 > North Region 
 
